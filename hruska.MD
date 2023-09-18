@@ -1,1 +1,0 @@
-# Majk Punk lidi
